@@ -27,4 +27,6 @@ ________________________________________________________________________________
 
 alright thats all if you wish to know more about me your creepy 
 
+If you would like to donate to me heres my monero wallet : **87QcykmZGgKMyT1eExvkoSfHhUG5iNvVmMyx9jVNHFSNMguzAC7FsrTasGDAzMTjabj5f4C3pexTE7WDnDt1v1HnRSbdNNh**
+
 bye bye
