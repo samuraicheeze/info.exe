@@ -17,7 +17,7 @@ ________________________________________________________________________________
 
 Socials :
 
-Email : (coming soon)
+Email : samcheeze@proton.me
 
 CS.RIN.RU : osamabincrane
 
