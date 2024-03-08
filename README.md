@@ -1,5 +1,5 @@
 hey you clicked on this from discord you little info sniff- heres some info about me : 
-___________________________________________________________________________
+__________________________________________________________________________________________________________________
 
 Name : Samurai/Samucheeze
 
@@ -21,7 +21,7 @@ Email : samcheeze@proton.me
 
 CS.RIN.RU : osamabincrane
 
-
+Session ID : 05d1b72a8973415394be14e054b4b7df39fcd12b8bfdd2421e0cb6bd5d5244922c
 __________________________________________________________________________________________________________________
 
 alright thats all if you wish to know more about me your creepy 
