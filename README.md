@@ -18,7 +18,7 @@ ________________________________________________________________________________
 
 Contacts :
 
-Email : samcheeze@proton.me
+Email : samurai77.repulsive075@passinbox.com
 
 CS.RIN.RU : osamabincrane
 
