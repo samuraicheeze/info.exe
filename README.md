@@ -20,8 +20,6 @@ Contacts :
 
 Email : samcheeze@proton.me
 
-CS.RIN.RU : osamabincrane
-
 Session ID : 05d1b72a8973415394be14e054b4b7df39fcd12b8bfdd2421e0cb6bd5d5244922c
 
 __________________________________________________________________________________________________________________
