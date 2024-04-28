@@ -30,6 +30,4 @@ _____________________________________________________________________
 
 
 
-**Email : samcheeze@proton.me**
-
 **Big thanks to Apocalypse for providing me with alot of programs**
