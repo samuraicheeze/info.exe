@@ -5,7 +5,7 @@ Programs Section :
 
 [FSR 3 Mod 0.10.4]( https://mega.nz/file/MyM2yLiK#UlW7fJRJd9myV9wBln8UmY5DPEO-IagEUwgl46Ypz7U)
 
-[IOBit Driver Booster Pro 11.3](https://mega.nz/file/LtdzSRgB#lR9vVvPJZctlYp21sOkeEmP1TqzA8MZp-Na9mNwRbbc)
+[IOBit Driver Booster Pro 11.4.0.60](https://mega.nz/file/oj0mjZwS#DC5EymbnWo6heuyrSF-4xeXVUowZofI_-2VJz0tRwMc)
 
 [Internet Download Manager V19.7](https://mega.nz/file/NrNAEZCQ#lIIal1yswnWsTPIi1h-ZIqfZ2E5jofex3JbhpTO0xCw)
 
