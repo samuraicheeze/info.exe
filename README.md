@@ -29,5 +29,6 @@ Websites Section :
 _____________________________________________________________________
 
 
+**All programs/websites that are listed here are safe**
 
 **Big thanks to Apocalypse for providing me with alot of programs**
