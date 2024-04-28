@@ -8,6 +8,7 @@
 
 [A Website That Encrypts Text Using AES-256 In the Form Of Emojis](https://cryptoji.com/)
 
+[A Website That Removes The Medal Watermark From Your Medal Clips ](https://medalbypass.vercel.app/)
 
 _____________________________________________________________________
 
