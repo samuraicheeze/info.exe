@@ -9,6 +9,6 @@
 
 
 
-**I made this site so i can post things that can be useful, this site can be updated anytime.**
+
 
 **Email : samcheeze@proton.me**
