@@ -11,6 +11,7 @@ Programs Section :
 
 [AIDA64 Diagnostic Business](https://mega.nz/file/Rz0lQQiZ#tTcao0U3E0UVK_TKg1hTj1yronVe7bIGFiwBm44HT0s)
 
+[ZD Soft Screen Recorder 11.7.6](https://mega.nz/file/8qckzYJS#HL6yHsdCSa8spFtsWsYPfxISIMl2itdgLS8Qx6fzVp4)
 _____________________________________________________________________
 
 Websites Section :
