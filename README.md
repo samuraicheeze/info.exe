@@ -30,6 +30,7 @@ Websites Section :
 
 _____________________________________________________________________
 
+[My Reddit Community](https://www.reddit.com/r/CrackersOnCrack/)
 
 **All programs/websites that are listed here are safe**
 
