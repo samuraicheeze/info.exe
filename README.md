@@ -13,6 +13,8 @@ Programs Section :
 
 [ZD Soft Screen Recorder 11.7.6](https://mega.nz/file/8qckzYJS#HL6yHsdCSa8spFtsWsYPfxISIMl2itdgLS8Qx6fzVp4)
 
+[TeraCopy Pro v3.17](https://mega.nz/file/p2NTwBYQ#vDzMpSa0qnN-2ZegdIwlylb21DKYFixBaO4MnZh-kbE)
+
 _____________________________________________________________________
 
 Websites Section :
