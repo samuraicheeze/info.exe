@@ -15,6 +15,8 @@ Programs Section :
 
 [TeraCopy Pro v3.17](https://mega.nz/file/p2NTwBYQ#vDzMpSa0qnN-2ZegdIwlylb21DKYFixBaO4MnZh-kbE)
 
+[AOMEI Partition Assistant 10.4.0 Retail](https://mega.nz/file/96FQFBDC#AjV4qd_mS7BpYeoeu6d4Qrelm54078pCmRiQzSF0b5Y)
+
 _____________________________________________________________________
 
 Websites Section :
