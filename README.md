@@ -1,25 +1,5 @@
-_____________________________________________________________________
 
-Programs Section :
-
-
-[FSR 3 Mod 0.10.4]( https://mega.nz/file/MyM2yLiK#UlW7fJRJd9myV9wBln8UmY5DPEO-IagEUwgl46Ypz7U)
-
-[IOBit Driver Booster Pro 11.4.0.60](https://mega.nz/file/dz83FZxL#Wy_1_4Sei5y9Ce7umc4irIr9XwN-mbCJhzwQhA-GiGQ)
-
-[Internet Download Manager V19.7](https://mega.nz/file/NrNAEZCQ#lIIal1yswnWsTPIi1h-ZIqfZ2E5jofex3JbhpTO0xCw)
-
-[AIDA64 Diagnostic Business](https://mega.nz/file/Rz0lQQiZ#tTcao0U3E0UVK_TKg1hTj1yronVe7bIGFiwBm44HT0s)
-
-[ZD Soft Screen Recorder 11.7.6](https://mega.nz/file/8qckzYJS#HL6yHsdCSa8spFtsWsYPfxISIMl2itdgLS8Qx6fzVp4)
-
-[TeraCopy Pro v3.17](https://mega.nz/file/p2NTwBYQ#vDzMpSa0qnN-2ZegdIwlylb21DKYFixBaO4MnZh-kbE)
-
-[AOMEI Partition Assistant 10.4.0 Retail](https://mega.nz/file/96FQFBDC#AjV4qd_mS7BpYeoeu6d4Qrelm54078pCmRiQzSF0b5Y)
-
-_____________________________________________________________________
-
-Websites Section :
+Websites
 
 
 [Best Free Movies/Shows Site](https://stream.majesty.lol)
@@ -33,9 +13,3 @@ Websites Section :
 [A Website That Removes The Medal Watermark From Your Medal Clips ](https://medalbypass.vercel.app/)
 
 _____________________________________________________________________
-
-Email : sixmegabytes@sakai.aleeas.com
-
-**All programs/websites that are listed here are safe**
-
-**Big thanks to Apocalypse for providing me with alot of programs**
